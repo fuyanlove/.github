@@ -1,2 +1,2 @@
 💠 iRuxu's friends' playground!   
-🌟 Build aswsome project for fun! 🌸
+🌟 Build awesome project for fun! 🌸
